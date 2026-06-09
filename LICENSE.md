@@ -1,4 +1,4 @@
-# 
+# Top new token sniper bot scripts pour Mac OS | Sécurisé new token sniper bot scripts pour PC Windows. Avec trading à effet de levier et flux en temps réel — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
